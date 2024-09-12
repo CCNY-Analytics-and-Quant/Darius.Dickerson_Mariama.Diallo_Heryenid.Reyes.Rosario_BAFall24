@@ -1,1 +1,2 @@
-# Darius.Dickerson_Mariama.Diallo_Coco_BAFall24
+# BA Fall 2024
+## Darius Dickerson - Mariama.Diallo - Coco
